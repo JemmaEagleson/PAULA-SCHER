@@ -1,4 +1,4 @@
-# PAULA SCHER
+PAULA SCHER
 ==============
 Intro
 -----
