@@ -4,9 +4,11 @@ Intro
 -----
 Paula Scher has been a huge part of graphic design for over 30 years now. She was born in Virginia on October 6th 1948 and grew up in Philadelphia and Washington. Since then Scher has developed her work through design, painting and educating and is widely known for pushing the boundaries of design. Paula also became the first female Principle at the New York office of the Pentagram design consultancy in 1991.
 
-Paula was always interested in design and as a child she would use drawing as a reason to go off to her room and spend some alone time. Even now Paula feels that drawing and painting allows her to escape from everyday life and gives her a sense of satisfaction. She remembers as a small child always being aware of design and how she recalls seeing an early cover for South Pacific and wondering why the faces were cropped off in an odd shape.
+Paula was always interested in design and as a child she would use drawing as a reason to go off to her room and spend some alone time. Even now Paula feels that drawing and painting allows her to escape from everyday life and gives her a sense of satisfaction. She remembers as a small child always being aware of design and how she recalls seeing an early cover for <i>South Pacific</i> and wondering why the faces were cropped off in an odd shape.
 
-There were no other artists in Scher’s family and her father, who was a photo-grammetric engineer and made all the government maps, was at first against Paula going to Art School. Her father was also an inventor and created a device called ‘stereo templates’, which is used a lot in Google Maps. Scher says she can remember him working on it in the basement of their house. Although Paula’s father was opposed to the idea of her attending Tyler she took a lot of inspiration from him and he was the main reason she later got really into painting maps.
+>"As a child I wanted to be a singer, dancer, piano-player and bare back rider.  When I got to be older and realized I wasn’t a beauty, I decided I wanted to be an artist. I didn’t know what a designer was - yet." - Paula Scher
+
+There were no other artists in Scher’s family and her father, who was a photo-grammetric engineer and made all the government maps, was at first against Paula going to Art School. Her father was also an inventor and created a device called ‘stereo templates’, which is used a lot in Google Maps. Scher says she can remember him working on it in the basement of their house. Although Paula’s father was opposed to the idea of her attending the Tyler School of Art she took a lot of inspiration from him and he was the main reason she later really got into painting maps.
 
 Scher’s Mother was also skeptical of the idea of Paula attending an art school and made her finish a teaching certificate so she would have something to fall back on if her career in design didn't work out. When Paula told her mum she had plans to go to New York and become a professional designer her mum simply replied ‘Don’t do anything like that, it sounds like it takes talent.’. Paula certainly ignored her mother’s comments and went on to have an amazing career. 
 
@@ -14,9 +16,13 @@ Education
 ---------
 Scher attended high school in Washington where she was the ‘school artist’,  and would make her friends paper dolls and comic strips. She also took weekend art classes at Corcoran College of Art and Design. Paula’s love for art and design meant that she quickly became the school’s publicity chairman and made all the advertising posters for events such as school dances.  
 
+>"When I was in high school, I took weekend art classes at Corcoran College of Art + Design, but I kept that to myself because it wasn’t a cool thing to do." - Paula Scher
+
 After high school Paula Scher followed her passion for art and design and attended the Tyler School of Art in Elkins Park Pennsylvania. At this time Scher felt that she couldn't draw well but soon learnt to illustrate her different concepts well with type.
 
 During her time at Tyler Scher loved experimenting with drawing, painting and printmaking, but feels that she didn't find her own style until she did a course called Graphic Design in her junior year. In this course Paula did a lot of problem solving projects and created lots of abstract pieces using different symbols and shapes. At this time her teacher was Stephen Tarantal who was a painter and designer. He gave her Basel basics which involved looking at layout and shape. She would carry out tasks such as moving a black square around a white page to study form and visual messages. Paula was also taught the the Swiss International Style of typography, Helvetica on a grid.
+
+>“I went to college thinking I was going to be a painter, but I couldn’t really draw, so I tried other things…It seemed like I wasn’t good at anything, but then…I discovered graphic design.” - Paula Scher
 
 Scher then started to veer towards illustration over graphic design because she  felt her work was too ‘sloppy’ and didn’t like arranging Helvetica on a set grid. Scher decided to go on to major in Illustration and had a teacher called Stanislaw Zagorski, who she feels influenced her whole life. Although Paula decided upon illustration she was frustrated as she could never do the typography on her projects, she would come up with a concept and then try to illustrate it but never liked the finished outcome. Stanislaw first gave Paula the idea to illustrate her concepts with type. As she experimented with this idea Scher began to learn a lot about type in relation to image.
 
@@ -52,7 +58,7 @@ Branding Identity
 ------------------
 One of Paula’s greatest achievements was being the first designer to create a new identity and different promotional graphics for The Public Theater in 1994. This included creating the logo, large-scale billboards, posters and even stationary. To do this Scher used a lovely blend of sans serif type to create a graphic language and graffiti-like style blended with traditional woodcuts. This helped the theatre to appeal to a more urban population.
 
-When Paula Scher started the project of giving The Public Theatre a new identity she knew that the organisation was greatly linked to Joseph Papp. Scher seen a big problem with this as Joseph Papp was dead and this gave out the impression that the theatre was dead too. Paula admired the previous work of Paul Davis’s but she felt like she needed to start over to rebuild a new, fresher image of the Public Theatre. Scher went in a completely opposite direction and focused mainly on type so her work would be easily differentiated from that of Paul Davis. Paula submitted three logos and George Wolf, the director, picked the boldest one. She wanted to make the word ’Public’ as big as possible so that people would know they were going to the Public Theatre. T
+When Paula Scher started the project of giving The Public Theatre a new identity she knew that the organisation was greatly linked to Joseph Papp. Scher saw a big problem with this as Joseph Papp was dead and this gave out the impression that the theatre was dead too. Paula admired the previous work of Paul Davis’s but she felt like she needed to start over to rebuild a new, fresher image of the Public Theatre. Scher went in a completely opposite direction and focused mainly on type so her work would be easily differentiated from that of Paul Davis. Paula submitted three logos and George Wolf, the director, picked the boldest one. She wanted to make the word ’Public’ as big as possible so that people would know they were going to the Public Theatre.
 
 The work Paula did for the Public Theatre went on to pick up the Beacon Award in 1996. In addition to this Paula has also provided all of the identity work and design for promotion for the Theatre's long-running Shakespeare in Central Park series since the early 1990s.
 
@@ -60,18 +66,11 @@ Fine Art
 --------
 As well as being a successful designer Paula Scher is also known as an artist for her large paintings of maps covered with closely packed hand painted labelling and information. Scher began painting these colourful typographic maps of the world in 1990.  They consisted of the world’s continents, countries, islands, streets and neighbourhoods. These sparked up controversy and represented information overload and the constant stream of news we are often subjected to. Paula released her book ‘MAPS’ in 2010 where the 39 paintings are collected for the first time in. Many of Paula Scher’s original paintings are massive and as tall as 12 feet. Her map project is by far my favourite work she has done to date. 
 
+>"I began painting maps to invent my own complicated narrative about the way I see and feel about the world. I wanted to list what I know about the world from memory, from impressions, from media, and from general information overload. These are paintings of distortions.” - Paula Scher
+
+
+
 Conclusion
 -----------
 Having lectured and exhibited all over the world, Paula Scher still works at Pentagram where she continues to design new things and create new concepts. She also still works as an educator, writer and artist and has received hundreds of prestigious design awards for her work over the years. This includes ore than 300 awards from international design associations in addition to a string of awards from the American Institute of Graphic Design. She believes that graphic design is timeless and this shows as many people continue to remember the cover she did for Boston’s debut album 39 years ago.
-
-
-
-
-
-
-
-
- 
-
-
 
