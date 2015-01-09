@@ -40,6 +40,8 @@ Paula’s concept was to copy a typographic style and turn it into a record cove
 
 Working in the music industry also taught Paula how to present her work. The recording artists Scher was working with had contractual cover approval, which meant that Scher had to present her ideas and finalised product to them before they could agree it. This allowed Paula to learn very early on how to explain and show her work to others and get them to understand and appreciate it. This has been a huge benefit to Scher throughout her career because she has the skills to get people to like her work and therefore sell it. In 1982 Paula decided to leave CBS Records to clasp the pressures of working on her own. 
 
+>“It’s through mistakes that you actually can grow. You have to get bad in order to get good.” - Paula Scher
+
 After Paula left CBS she became less focused on illustrative imagery and more so on just pure type. Scher says she feels much more in control if the project she’s working on is just type. Although 90 percent of what Paula does now is type there are still instances where she will take up an illustration project. Paula Scher's style now brings to mind bold imagery and her use of type is a lot more illustrative rather than print style.
 
 In 1984 along with Terry Koppel, Paula Scher formed the studio Koppel & Scher. Terry was an editorial designer and fellow Tyler graduate of Scher’s. During the seven years of Koppel & Scher Paula produced brand identities, packaging, book covers, and advertising, including her famous Swatch poster based on Herbert Matter’s previous work. Paula described the work she did there as a balance of editorial design and promotion packaging and covers. In 1990 Terry left the partnership and took a job on at Esquire. Paula then ran the business herself for about a year until a man called Woody Pirtle who was a partner at Pentagram visited her studio and asked her if she would be interested in joining them. The experience  of being involved in a successful partnership showed Paula the challenge of keeping her own clients and keeping on top of an small organised company.
@@ -54,7 +56,7 @@ Educator
 --------
 In 1992 Paula began teaching at the School of Visual Arts in New York as a design educator. She has taught in New York now for over 20 years along with positions at the Cooper Union, Yale University and her former college, Tyler School of Art. 
 
-Branding Identity
+Brand Identity
 ------------------
 One of Paula’s greatest achievements was being the first designer to create a new identity and different promotional graphics for The Public Theater in 1994. This included creating the logo, large-scale billboards, posters and even stationary. To do this Scher used a lovely blend of sans serif type to create a graphic language and graffiti-like style blended with traditional woodcuts. This helped the theatre to appeal to a more urban population.
 
@@ -67,8 +69,6 @@ Fine Art
 As well as being a successful designer Paula Scher is also known as an artist for her large paintings of maps covered with closely packed hand painted labelling and information. Scher began painting these colourful typographic maps of the world in 1990.  They consisted of the world’s continents, countries, islands, streets and neighbourhoods. These sparked up controversy and represented information overload and the constant stream of news we are often subjected to. Paula released her book ‘MAPS’ in 2010 where the 39 paintings are collected for the first time in. Many of Paula Scher’s original paintings are massive and as tall as 12 feet. Her map project is by far my favourite work she has done to date. 
 
 >"I began painting maps to invent my own complicated narrative about the way I see and feel about the world. I wanted to list what I know about the world from memory, from impressions, from media, and from general information overload. These are paintings of distortions.” - Paula Scher
-
-
 
 Conclusion
 -----------
