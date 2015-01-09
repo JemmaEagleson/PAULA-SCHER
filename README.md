@@ -1,3 +1,16 @@
+Paula Scher Essay
+================
+Click the link below to view my essay:
+- [My Essay](https://JemmaEagleson.github.io/personal-page/Personal-Page.html)
+
+
+
+
+
+
+
+
+
 PAULA SCHER
 ==============
 Intro
