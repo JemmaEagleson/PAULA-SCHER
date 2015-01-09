@@ -50,7 +50,7 @@ Paula was interested in the offer Woody gave her and became a partner in the New
 
 The time Scher has spent working within Pentagram has allowed her to develop her typographic skills and her instinct for problem solving. You can easily see how the move to Pentagram developed Scher as a designer through the contrast of her early work and current work. Instead of being entered around the design of a neatly comprised package for a particular product, Scher now tackles a much larger array of designs which bring out her personality across a range of media such as posters, packages and physical spaces.
 
-Designer Seymour Chwast was a huge influence on Scher throughout her career and they first met in 1970 with Paula’s portfolio. He created work that saw a clever blending of imagery and type. As well as take a lot of inspiration from Chwast’s work Paula Scher also married him- twice. Once when she was 25 and again when she was 40. When they divorced Scher built a life and career on her own in the competitive design world and created an individual style and name for herself. 
+Designer Seymour Chwast was a huge influence on Scher throughout her career and they first met in 1970 with Paula’s portfolio. He created work that saw a clever blending of imagery and type. As well as take a lot of inspiration from Chwast’s work Paula Scher also married him - twice. Once when she was 25 and again when she was 40. When they divorced Scher built a life and career on her own in the competitive design world and created an individual style and name for herself. 
 
 Educator
 --------
